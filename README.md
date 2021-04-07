@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BrynnW
-- 👀 I’m interested in Game Design, both digital and 
+- 👀 I’m interested in Game Design, both digital and tabletop
 - 🌱 I’m currently learning what it means to be alive
 - 💞️ I’m looking to collaborate on nothing at the moment
 
